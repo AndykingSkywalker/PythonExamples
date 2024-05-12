@@ -8,4 +8,4 @@ If you would like to contribute to this repository, feel free to submit a pull r
 
 ## Contact
 
-If you have any questions or suggestions, please feel free to reach out to us at [email@example.com](mailto:email@example.com).
+If you have any questions or suggestions, please feel free to reach out to me via my Twitter on my profile.
